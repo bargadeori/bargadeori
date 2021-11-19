@@ -3,7 +3,7 @@
 
 Team Lead at Centre for Development of Advanced Computing Silchar, having 6+ years of experience. Involved with various R&D projects of C-DAC. Expertise in Java, Python, Kotlin, Hibernate, Machine Learning and Deep Learning. 
 
-Also, pursuing PhD student at the National Institute of Technology silchar. My area of reasearch is Video Summarization, Video Captioning and Video Storytelling. 
+Also, pursuing PhD. at National Institute of Technology silchar. My area of research is Video Summarization, Video Captioning and Video Storytelling. 
 
 Looking for collborations research work and projects for the ease of the mankind and making a better world for living.
 
