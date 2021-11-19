@@ -5,8 +5,8 @@ Team Lead at Centre for Development of Advanced Computing Silchar, having 6+ yea
 
 Also, pursuing PhD student at the National Institute of Technology silchar. My area of reasearch is Video Summarization, Video Captioning and Video Storytelling. 
 
-Looking for collborations for research work and projects for the ease the mankind.
+Looking for collborations for research work and projects for the ease of the mankind and making a better world for living.
 
-Have a nice day ahead. Thanks for your kind visit to my profile. 
+Thanks for your kind visit to my page. Have a nice day ahead. Wish you Good Luck.
 
 
