@@ -9,4 +9,11 @@ Looking for collborations for research work and projects for the ease of the man
 
 Thanks for your kind visit to my page. Have a nice day ahead. Wish you Good Luck.
 
+You may reach me at - 
+
+1. Email Id- bargad@cdac.in / bargadeori@gmail.com
+2. https://www.linkedin.com/in/barga-deori-459bb630/
+3. https://www.facebook.com/deoribarga/
+4. https://www.youtube.com/bargadeori
+
 
